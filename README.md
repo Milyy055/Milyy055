@@ -1,0 +1,3 @@
+- 👋 ola emily camile
+- 👀 pensamento computacional
+- 🌱 vivendo e aprendendo.
